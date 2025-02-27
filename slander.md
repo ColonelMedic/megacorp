@@ -1,3 +1,0 @@
-# megacorp
-
-delete this later
